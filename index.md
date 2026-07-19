@@ -50,4 +50,4 @@ be updated and the effective date above revised.
 
 ## Contact
 
-Questions about this policy: sam.calamos@gmail.com
+Questions about this policy: priorities@friendmas.app
